@@ -1,5 +1,6 @@
 ![photo_2024-01-11_03-12-59](https://github.com/kohutd/national-elite/assets/21020331/91b1df20-b74a-4d88-80bf-4ad19c812fcf)
 ![photo_2024-01-11_03-13-05](https://github.com/kohutd/national-elite/assets/21020331/75f73b3a-d08d-4e00-95cb-b9749aea9e2c)
+![image](https://github.com/kohutd/national-elite/assets/21020331/ce2f7bab-3b37-4f68-9972-b32df28f944f)
 ![photo_2024-01-11_03-12-50](https://github.com/kohutd/national-elite/assets/21020331/07272139-ccaa-4164-8623-637b846791d5)
 ![photo_2024-01-11_03-13-14](https://github.com/kohutd/national-elite/assets/21020331/9952ff97-ec25-431b-a19a-37879fe22611)
 ![photo_2024-01-11_03-13-11](https://github.com/kohutd/national-elite/assets/21020331/7b2916de-786b-4790-a748-28bd707a6357)
